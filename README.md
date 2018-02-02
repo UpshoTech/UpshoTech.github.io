@@ -1,2 +1,2 @@
-# upshotech.github.io
-UpshoTech Company Official Website
+# Upshotech Co, Ltd.
+We are ugrading server, will be back soon!
